@@ -1,1 +1,1 @@
-# insta-folowers-vs-following
+# insta-followers-vs-following
